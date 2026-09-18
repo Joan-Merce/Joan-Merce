@@ -16,4 +16,4 @@
 #### 📫 You can reach me at: joanmerce.contact@gmail.com
 ---
 <div align="center">
--👣👣👣*The most important step to take is always the next one* 👣👣👣-
+👣👣👣 <i>The most important step to take is always the next one<i> 👣👣👣
